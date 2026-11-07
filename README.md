@@ -1,4 +1,4 @@
-Building apps from Málaga, Spain. Co-founder of [Cutmax](https://cutmax.app).
+Cybersecurity & AI student in Málaga. Co-founder of [Cutmax](https://cutmax.app).
 
 ## Current Projects
 
